@@ -1,5 +1,3 @@
-Dear Sir,
-
 As a well-established Cross-Platform Mobile Application Developer with a passion for programming, design, and development, I am an ideal candidate for a Mobile Developer opening. Having progressed through a series of roles over more than 10 years, I am excited to apply my skills to produce immediate results as a valuable member of your company team.
 
 Throughout my career, I have made it my priority to utilize current technologies and new techniques to develop elegant, creative technical solutions across all project phases. Comfortable in collaborative and independently-driven roles, I am a forward-thinking leader with refined analytical and critical thinking skills and I can adapt and revise my strategies to meet evolving priorities, shifting needs, and emergent issues.
